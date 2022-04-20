@@ -13,5 +13,5 @@ What am I great at
 [Projects →](https://www.behance.net/ibbieosman)
 
 Previously@
- - [x] Microsoft
- - [x] Shoreline Community College
+ - [x] Microsoft, Visual Communications Designer
+ - [x] Shoreline Community College, Graphic Designer
