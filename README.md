@@ -14,7 +14,7 @@ I am great at:
 - being me,
 - and being there for you.
 
-[Projects →](https://www.behance.net/ibbieosman)
+[Portfolio →](https://www.behance.net/ibbieosman)
 
 #### A list of good things
 
