@@ -32,5 +32,5 @@ Places on the internet you can visit to help others doing great work
 
 A Google Slides based social media graphic maker
 
-[Insta-Postmaker](https://docs.google.com/presentation/d/1T2jth8sh_opcJEfLL6CBt3TLpk3iJeeYrVoD-w2Lgio/edit?usp=sharing)
+[Insta-Postmaker →](https://docs.google.com/presentation/d/1T2jth8sh_opcJEfLL6CBt3TLpk3iJeeYrVoD-w2Lgio/edit?usp=sharing)
 
