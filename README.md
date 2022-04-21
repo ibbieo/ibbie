@@ -20,13 +20,13 @@ I am great at:
 
 Places on the internet you can visit to help others doing great work
 
-[A New Way of Life](https://anewwayoflife.org/donate/)
+[A New Way of Life →](https://anewwayoflife.org/donate/)
 
-[Black-owned Bookstores](https://nonamebooks.com/Bookstores)
+[Black-owned Bookstores →](https://nonamebooks.com/Bookstores)
 
-[Breonna Taylor Foundation](http://breonnataylorfoundation.org/)
+[Breonna Taylor Foundation →](http://breonnataylorfoundation.org/)
 
-[Haiti Emergency Relief Fund](http://www.haitiemergencyrelief.org/)
+[Haiti Emergency Relief Fund →](http://www.haitiemergencyrelief.org/)
 
 #### I made this 💪🏾
 
