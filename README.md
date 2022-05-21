@@ -2,7 +2,7 @@ Hi, I'm Ibbie 🤎.
 
 I'm a designer based in Seattle, passionate about design for all.
 
-Currently I'm @SeattleIndianHealthBoard, a Native focused clinic/advocacy org, where I support with everything design as we work on addressing systemic racism, inequity, and fixing all of the world's ills.
+Currently I'm @SeattleIndianHealthBoard, a Native serving clinic/advocacy org, where I support with everything design as we work on addressing systemic racism, inequity, and fixing all of the world's ills.
 
 #### Skills
 
