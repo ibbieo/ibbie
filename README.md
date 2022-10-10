@@ -4,6 +4,8 @@ I'm a designer based in Seattle, passionate about design for all.
 
 Currently I'm @SeattleIndianHealthBoard, a Native serving clinic/advocacy org, where I support with everything design as we work on addressing systemic racism, inequity, and fixing all of the world's ills.
 
+[Let's chat →](https://calendly.com/ibbie) 
+
 #### Skills
 
 I am great at:
@@ -28,9 +30,7 @@ Places on the internet you can visit to help others doing great work
 
 [Haiti Emergency Relief Fund →](http://www.haitiemergencyrelief.org/)
 
-#### I made this 💪🏾
-
-A Google Slides based social media graphic maker
+#### A Google Slides based social media graphic maker
 
 [Insta-Postmaker →](https://docs.google.com/presentation/d/1T2jth8sh_opcJEfLL6CBt3TLpk3iJeeYrVoD-w2Lgio/edit?usp=sharing)
 
